@@ -34,7 +34,7 @@
 13.可爱的开关：[https://wanghao221.github.io/game/switch.html](https://wanghao221.github.io/game/switch.html)
 
 更多有趣、实用内容持续更新<br>
-扫码关注或者微信搜索公众号：啦啦啦好想biu点什么
+扫码关注或者微信搜索公众号：海拥
 
 ![啦啦啦好想biu点什么](https://img-blog.csdnimg.cn/20210118135732258.jpg#pic_center)
 
